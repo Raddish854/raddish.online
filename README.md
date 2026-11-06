@@ -1,2 +1,2 @@
 # Raddish.github.io
-Personal Blog For Now
+Do not use without permission
